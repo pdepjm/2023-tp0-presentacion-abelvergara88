@@ -3,7 +3,7 @@
 - Tengo 34 años
 - Mi legajo es 1308300
 
-![image]()
+![image](https://github.com/pdepjm/2023-tp0-presentacion-abelvergara88/blob/main/70966264_10218104588079088_5566520693585084416_n.jpg)
 
 
 # Algo sobre mi:
