@@ -10,3 +10,7 @@
 - Me gusta la tecnología, los video juegos (LOL y L2), los deportes y las artes marciales (soy instructor de SIPALKI).
 - Juego al futbol con amigos 2 veces por semana.
 - Mis pasatiempos son pescar, mirar series o peliculas. Jugar videojuegos en linea con mis amigos.
+
+
+
+Para los que no sepan L2 es un juego MMORPG llamado LINEAGE II
